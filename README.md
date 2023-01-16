@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @mansi0399
-- 👀 I’m interested in machine learning and marketing field.
 - 🌱 I’m a student at GLS university.
 - 💞️ Dancing, Reading books, planting, and Beautification are my favourite things to do.
 
